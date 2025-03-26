@@ -7,7 +7,7 @@ If u copy me w/out perm i will get u ik who u r lil bro
 {ill jst tell u to delete/cred me..}---
 [ponies ive made](https://kabunya.straw.page/)
 
-
+![brothatssocrazy (1)](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
 
 
 # info
@@ -29,7 +29,8 @@ discord: scaramoucho
 tiktok: [@kabukimonon](https://www.tiktok.com/@kabukimonon?lang=en)
 
 twitter: [@chiscaraburger](https://x.com/chiscaraburger)
-![brothatssocrazy (1)](https://github.com/user-attachments/assets/11922e51-04c8-4d91-bcef-eabea5a084da)
+
+
 
 for ponytowners
 last updated: 3/25/25
