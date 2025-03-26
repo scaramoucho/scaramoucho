@@ -7,6 +7,7 @@ If u copy me w/out perm i will get u ik who u r lil bro
 {ill jst tell u to delete/cred me..}---
 [ponies ive made](https://kabunya.straw.page/)
 
+![image](https://github.com/user-attachments/assets/7b6b6807-b180-4c63-ab16-3f65cff20c8c)
 
 
 
