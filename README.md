@@ -12,7 +12,7 @@ If u copy me w/out perm i will get u ik who u r lil bro
 
 # info
 
-kuni/kabu/shun ; he/him/it ; trans male ; viet/chinese ; 
+kuni/kabu/shun ; he/him/it ; trans male ; viet/chinese 
 
  dni:
 
