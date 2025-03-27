@@ -30,8 +30,10 @@ tiktok: [@kabukimonon](https://www.tiktok.com/@kabukimonon?lang=en)
 
 twitter: [@chiscaraburger](https://x.com/chiscaraburger)
 
+instagram: [@scaramoucho](https://www.instagram.com/scaramoucho/)
+
 ![Profile view counter on Github](https://komarev.com/ghpvc/?username=scaramoucho)
 
 for ponytowners
 
-last updated: 3/25/25
+last updated: 3/26/25
