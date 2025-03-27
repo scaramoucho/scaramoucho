@@ -30,7 +30,9 @@ tiktok: [@kabukimonon](https://www.tiktok.com/@kabukimonon?lang=en)
 
 twitter: [@chiscaraburger](https://x.com/chiscaraburger)
 
-instagram: [@scaramoucho](https://www.instagram.com/scaramoucho/)
+instagram: [@scaramouchce](https://www.instagram.com/scaramouchce/)
+
+art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 ![Profile view counter on Github](https://komarev.com/ghpvc/?username=scaramoucho)
 
