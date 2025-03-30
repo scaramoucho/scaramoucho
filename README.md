@@ -3,8 +3,7 @@
 sign my [atabook](https://scaramoucho.atabook.org/) everypony
 
 
-If u copy me w/out perm i will get u ik who u r lil bro
-{ill jst tell u to delete/cred me..}---
+do not copy me w/out permission or @ least cred me---
 [ponies ive made](https://kabunya.straw.page/)
 
 ![brothatssocrazy (1)](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
