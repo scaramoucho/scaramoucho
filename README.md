@@ -1,11 +1,11 @@
-# MY FUCKING PATREON GOT TAKEN DOWN FOR THE LIKE 4TH FUCKING TIME so hai guys im using github now
+# MY PATREON GOT TAKEN DOWN FOR THE LIKE 4TH FUCKING TIME so hai guys im using github now
 
 sign my [atabook](https://scaramoucho.atabook.org/) everypony
 
 
 do not copy me w/out permission or @ least cred me ik who u r --- [ponies ive made](https://kabunya.straw.page/)
 
-![brothatssocrazy (1)](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
+![brothatssocrazy](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
 
 
 # info
@@ -14,7 +14,7 @@ kuni/kabu/shun ; he/him/it ; trans male ; viet/chinese
 
  dni:
 
-basic dni, 12 and under, misgenders people on purpose, scaranation, toxic=cool, nu:carnival fans, yarichin b club fans, dsmp fans, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, werid fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters cat haters
+basic dni, 12 and under, misgenders people on purpose, scaranation, toxic=cool, nu:carnival fans, ybc fans, dsmp fans, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, werid fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, cat haters
 
  byi:
 
