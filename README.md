@@ -11,7 +11,7 @@ do not copy me w/out permission or @ least cred me ik who u r --- [ponies ive ma
 
 # info
 
-kuni/kabu/shun ; he/him/it ; trans male ; viet/chinese 
+kuni/kabu/shun ; he/him/it ; fifteen ; trans male ; viet/chinese ; yyurr
 
  dni:
 
