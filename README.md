@@ -7,7 +7,6 @@ do not copy me w/out permission or @ least cred me ik who u r --- [ponies ive ma
 
 ![brothatssocrazy](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
 
-[well okai](https://docs.google.com/document/d/1VcBvhgGj3tl2pDkNVjfYlD1Urju7AIjbpyDvEdSQyfU/edit?usp=sharing)
 
 # info
 
