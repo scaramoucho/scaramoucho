@@ -3,7 +3,7 @@
 sign my [atabook](https://scaramoucho.atabook.org/) everypony
 
 
-do not copy me w/out permission or @ least cred me ik who u r --- [ponies ive made](https://kabunya.straw.page/)
+do not copy me w/out permission or credit me ik who u r --- [ponies ive made](https://kabunya.straw.page/)
 
 ![brothatssocrazy](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
 
@@ -36,4 +36,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 3/29/25
+last updated: 4/20/25
