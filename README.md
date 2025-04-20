@@ -3,7 +3,7 @@
 sign my [atabook](https://scaramoucho.atabook.org/) everypony
 
 
-do not copy me w/out permission or credit me ik who u r --- [ponies ive made](https://kabunya.straw.page/)
+inspo is ok but do not copy me w/out permission or credit me ik who u r --- [ponies ive made](https://kabunya.straw.page/)
 
 ![brothatssocrazy](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
 
