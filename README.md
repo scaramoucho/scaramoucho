@@ -18,7 +18,7 @@ basic dni, 12 and under, misgenders people on purpose, scaranation, toxic=cool, 
 
  byi:
 
-english only, slow, kys/kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated,  interact w me pls!!!, inspo is okai, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, i glaze the shit out of childe and scara sorry, i am LIDOLLY scara trust me on this
+english only, slow, kys/kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, i glaze the shit out of childe and scara sorry, i am LIDOLLY scara trust me on this
 
 # socials:
 
