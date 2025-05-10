@@ -14,7 +14,7 @@ inspo is ok but do not copy me w/out permission/credit ik who u r --- [ponies iv
 
  dni:
 
-basic dni, 12 and under, scaranation, toxic=cool, nu:carnival fans, ybc fans, dsmp fans, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, werid fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, cat haters
+basic dni, 12 and under, automatically mean even tho we just met/dont know each other, scaranation, toxic=cool, nu:carnival fans, ybc fans, dsmp fans, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, werid fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, cat haters
 
  byi:
 
@@ -36,4 +36,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 4/27/25
+last updated: 5/10/25
