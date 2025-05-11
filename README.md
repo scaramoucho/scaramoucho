@@ -10,7 +10,7 @@ inspo is ok but do not copy me w/out permission/credit ik who u r --- [ponies iv
 
 # info
 
-[kuni/kabu/shun](https://en.pronouns.page/@scaramoucho) , he/him/it , fifteen , trans male , viet/chinese , yyurr
+[kuni/kabu/shun](https://en.pronouns.page/@scaramoucho) , he/him/it , fifteen , trans male , viet/chinese , english only 
 
  dni:
 
@@ -18,7 +18,7 @@ basic dni, 12 and under, automatically mean even tho we're not close, scaranatio
 
  byi:
 
-english only, slow, kys/kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, whisper to interact w me, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara :p
+i rarely int first even if i rlly wana int w u, slow, kys/kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, w2i, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara :p
 
 # socials:
 
@@ -36,4 +36,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 5/10/25
+last updated: 5/11/25
