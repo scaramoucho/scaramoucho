@@ -14,7 +14,7 @@ inspo is ok but do not copy me w/out permission/credit ik who u r --- [ponies iv
 
  dni:
 
-basic dni, 12 and under, automatically mean even tho we're not close, scaranation, toxic=cool, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, werid fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, cat haters, just dont b a weirdo & i wont ignore 
+basic dni, 12 and under, automatically mean even tho we're not close, jokes that only consist of making fun of others/me, scaranation, toxic=cool, dottoscara shippers, selfcest likers, irl gore likers, romanticizes mental illness and self harm, werid fujos/fudans/himes wtv theyre called, constant yaoi/yuri jokes/humor, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, cat haters, just dont b a weirdo & i wont ignore 
 
  byi:
 
