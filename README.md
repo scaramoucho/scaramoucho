@@ -14,7 +14,7 @@ inspo is ok but do not copy me w/out permission/credit ik who u r --- [ponies iv
 
  dni:
 
-basic dni, 12 and under, jokes that only consist of making fun of others/me, toxic=cool, proshippers, selfcest likers, constant yaoi/yuri jokes/humor, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, cat haters, other than that just dont b a weirdo & i wont ignore 
+basic dni, proshippers, 12 and under, jokes that only consist of making fun of others/me, toxic=cool, selfcest likers, constant yaoi/yuri talk, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, other than that just dont b a weirdo & i wont ignore 
 
  byi:
 
