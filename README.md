@@ -18,7 +18,7 @@ basic dni, proshippers, 12 and under, jokes that only consist of making fun of o
 
  byi:
 
-i rarely int first even if i rlly wana int w u, slow, kys/kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, w2i, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara :p
+i rarely int first even if i rlly wana int w u, slow, kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, w2i, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara & kabuki :p
 
 # socials:
 
@@ -36,4 +36,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 5/21/25
+last updated: 5/23/25
