@@ -14,7 +14,7 @@ inspo is ok but do not copy me w/out permission/credit ik who u r --- [ponies iv
 
  dni:
 
-basic dni, proshippers, 12 and under, jokes that only consist of making fun of others/me, toxic=cool, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, other than that just dont b a weirdo & i wont ignore 
+basic dni, proshippers, -12, jokes that only consist of making fun of others/me, problematic=cool, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, other than that just dont b a weirdo & i wont ignore 
 
  byi:
 
@@ -36,4 +36,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 5/23/25
+last updated: 5/25/25
