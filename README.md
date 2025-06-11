@@ -18,7 +18,7 @@ basic dni, proshippers, -12, jokes that only consist of making fun of others/me,
 
  byi:
 
-i rarely int first even if i rlly wana int w u, slow, kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic, offtab, slow replies, w2i, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara & kabuki :p
+i rarely int first even if i rlly wana int w u, slow, kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic i literally have a bf, offtab, slow replies, w2i, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara & kabuki :p
 
 # socials:
 
