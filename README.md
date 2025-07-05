@@ -14,11 +14,11 @@ inspo is ok but do not copy me w/out permission/credit ik who u r --- [ponies iv
 
  dni:
 
-basic dni, proshippers, -12, jokes that only consist of putting down others/me & mean to me in general, problematic=cool, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, other than that just dont b a weirdo & i wont ignore 
+basic dni, proshippers, -12, jokes that only consist of putting down others/me, mean to me in general, problematic=cool, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, other than that just dont b a weirdo & i wont ignore 
 
  byi:
 
-i rarely int first even if i rlly wana int w u, slow, kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic i literally have a bf, offtab, slow replies, w2i, cuddles appreciated,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara & kabuki :p
+i rarely int first even if i rlly wana int w u, slow, kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic i literally have a bf🤔, offtab 90% of the time, slow replies, w2i, cuddles welcomed,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, scara & childe glazer, i am LIDOLLY scara & kabuki :p
 
 # socials:
 
@@ -36,4 +36,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 6/16/25
+last updated: 7/4/25
