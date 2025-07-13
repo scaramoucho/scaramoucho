@@ -32,8 +32,8 @@ instagram: [@scaramouchce](https://www.instagram.com/scaramouchce/)
 
 art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
-![](https://komarev.com/ghpvc/?username=scaramoucho&color=lightgrey)
+![.](https://komarev.com/ghpvc/?username=scaramoucho&label=nya&color=lightgrey)
 
 for ponytowners
 
-last updated: 7/4/25
+last updated: 7/13/25
