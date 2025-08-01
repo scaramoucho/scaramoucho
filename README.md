@@ -5,7 +5,7 @@
 
 ![brothatssocrazy](https://github.com/user-attachments/assets/5da43837-eb16-4253-aa30-a092d435eb76)
 
-inspo is ok but do not copy me w/out permission/credit ik who u r --- [ponies ive made](https://kabunya.straw.page/)
+inspo is okai but do not copy me entirely w/out permission/credit ik who u r --- [ponies ive made](https://kabunya.straw.page/)
 
 
 # info
@@ -36,4 +36,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 7/27/25
+last updated: 7/31/25
