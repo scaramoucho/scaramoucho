@@ -14,7 +14,9 @@ inspo is okai but do not copy me entirely w/out permission/credit ik who u r ---
 
  dni:
 
-basic dni, proshippers, -12, jokes that only consist of putting down others/me, mean to me in general, problematic=cool, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, other than that just dont b a weirdo & i wont ignore 
+basic dni, proshippers, -12, jokes that only consist of putting down others/me, mean to me in general, problematic=cool, scara haters, xaaxaa haters, miyashita yuu haters, chiscara haters, other than that just dont b a weirdo & i wont ignore
+
+**`ALSO NOTE TO GREEN NAMES: just because we're green names does not mean u can say wtv u want to me & green names more r mutuals rather than friends to me so dont expect me to not unfriend u & stuff ^_^;`**
 
  byi:
 
@@ -36,4 +38,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 9/2/25
+last updated: 9/29/25
