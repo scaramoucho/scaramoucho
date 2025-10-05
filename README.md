@@ -36,8 +36,10 @@ instagram: [@scaramouchce](https://www.instagram.com/scaramouchce/)
 
 art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
+**commissions hi please commission me:** [contact me thru twt @chiscaraburger](https://x.com/chiscaraburger/status/1970326054347960525)
+
 ![.](https://komarev.com/ghpvc/?username=scaramoucho&label=nya&color=lightgrey)
 
 for ponytowners
 
-last updated: 9/30/25
+last updated: 10/5/25
