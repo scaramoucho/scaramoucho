@@ -10,7 +10,7 @@ inspo is okai but do not copy me entirely w/out permission/credit ik who u r ---
 
 # info
 
-[kabu/eons](https://en.pronouns.page/@scaramoucho) , he/him/it , fifteen (09) , trans male , viet/chinese , english only 
+[kabu/eons](https://en.pronouns.page/@scaramoucho) , he/him/it , sixteen (09) , trans male , viet/chinese , english only 
 
  dni:
 
@@ -42,4 +42,4 @@ art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
 for ponytowners
 
-last updated: 11/2/25
+last updated: 11/18/25
