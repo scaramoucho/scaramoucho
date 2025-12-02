@@ -10,11 +10,11 @@ inspo is okai/encouraged but do not copy every pixel of my ponies w/out permissi
 
 # info
 
-[kabu/eons](https://en.pronouns.page/@scaramoucho) , he/him/it , sixteen (09) , trans male , viet/chinese , english only 
+[kabu/eons](https://en.pronouns.page/@scaramoucho) , he/him , sixteen (09) , trans male , viet/chinese , english only 
 
  dni:
 
-basic dni, proshippers, -13, mean humor if not close w me, problematic tryhard, haters of my interests, diehard scara haters & chiscara haters, other than that just dont b a weirdo & i wont ignore
+basic dni, proshippers, -13, mean humor if not close w me, problematic tryhard, diehard scara haters & chiscara haters, other than that just dont b a weirdo & i wont ignore
 
 
 
