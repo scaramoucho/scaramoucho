@@ -14,13 +14,13 @@ inspo is okai/encouraged but do not copy every pixel of my ponies w/out permissi
 
  dni:
 
-basic dni, proshippers, -13, jokes that only consist of putting down others/me, mean to me in general if not close w me, problematic tryhard, haters of my interests, scara haters, chiscara haters, other than that just dont b a weirdo & i wont ignore
+basic dni, proshippers, -13, mean humor if not close w me, problematic tryhard, haters of my interests, diehard scara haters & chiscara haters, other than that just dont b a weirdo & i wont ignore
 
 
 
  byi:
 
-i rarely int first, slow, kms jokes, abbreviations of words, tell me if u need tonetags, everything platonic i literally have a bf🤔, w2i, offtab 90% of the time, slow replies & may miss ur msg, cuddles welcomed,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, kabuki/scara fictkin :p
+i rarely int first, slow, kms jokes, abbreviations of words, tell me if u need tonetags, i have a bf pls no flirting/wierd stuff, w2i, offtab 99% of the time, slow replies & may miss ur msg, cuddles encouraged,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, kabuki/scara fictkin :p
 
 --**`ALSO NOTE TO GREEN NAMES: just because we're green names does not mean u can say wtv u want to me & also take note that green names r MUTUALS to me, NOT FRIENDS!! (unless i say so ofc) so dont expect me to not unfriend u ^_^;`**
 
@@ -36,10 +36,10 @@ instagram: [@scaramouchce](https://www.instagram.com/scaramouchce/)
 
 art insta acc: [@scaramoucho](https://www.instagram.com/scaramoucho/)
 
-**commissions hi please commission me:** [contact me thru twt @chiscaraburger](https://x.com/chiscaraburger/status/1970326054347960525)
+**hi pls commission me ineedmonies:** [commission info](https://x.com/chiscaraburger/status/1970326054347960525)
 
 ![.](https://komarev.com/ghpvc/?username=scaramoucho&label=nya&color=lightgrey)
 
 for ponytowners
 
-last updated: 11/29/25
+last updated: 12/1/25
