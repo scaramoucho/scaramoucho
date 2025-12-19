@@ -23,7 +23,7 @@ basic dni, proshippers, -13, mean humor if not close w me, problematic tryhard, 
 
 - inspo is okai/encouraged but do not copy every pixel of my ponies w/out permission/credit ik who u r --- [ponies ive made](https://kabunya.straw.page/)
 
---**`NOTE TO GREEN NAMES: just bcz we're green names doesnt mean u can say wtv u want to me & green names r MUTUALS to me, not friends (unless i say so ofc) so dont expect me to not unfriend if ur mean or wierd to me ^_^;`**
+- just bcz we're green names doesnt mean u can say wtv u want to me & green names r MUTUALS to me, not friends (unless i say so ofc) so dont expect me to not unfriend if ur mean or wierd to me ^_^;`**
 
 # socials:
 
