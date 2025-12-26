@@ -25,7 +25,7 @@ basic dni, proshippers, -13, mean humor if not close w me, problematic tryhard, 
  
  i rarely int first, slow, kms jokes, abbreviations of words, tell me if u need tonetags, i have a bf pls no flirting/wierd stuff, w2i, offtab 99% of the time, slow replies & may miss ur msg, cuddles encouraged,  interact w me pls!!!, [click 4 ships](https://chiscaraburger.straw.page/), obsessed w scaramouche & chiscara, kabuki/scara fictkin :p
 
-
+- i like blocking people 
 - just bcz we're green names doesnt mean u can say wtv u want to me
 -  green names r mutuals to me, not friends <sub><sup>(unless i say so)</sup></sub> so dont expect me to not unfriend/block if ur mean or wierd to me
 
@@ -39,4 +39,4 @@ basic dni, proshippers, -13, mean humor if not close w me, problematic tryhard, 
 
 for ponytowners
 
-last updated: 12/19/25
+last updated: 12/25/25
