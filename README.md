@@ -30,12 +30,9 @@ basic dni, proshippers, -13, mean humor if not close w me, problematic tryhard, 
 
 
 ------------
-# hello
-
-**hi pls commission me ineedmonies:** [commission info](https://x.com/chiscaraburger/status/1970326054347960525)
 
 ![.](https://komarev.com/ghpvc/?username=scaramoucho&label=nya&color=lightgrey)
 
 for ponytowners
 
-last updated: 12/25/25
+last updated: 1/8/26
