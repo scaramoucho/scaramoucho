@@ -8,4 +8,4 @@
  inspo ok no copy tho 
 
 
-![.](https://komarev.com/ghpvc/?username=scaramoucho&label=nya&color=lightgrey)
+![.](https://komarev.com/ghpvc/?username=scaramoucho&label=♱&color=lightgrey)
