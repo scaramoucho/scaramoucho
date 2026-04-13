@@ -7,6 +7,6 @@
 
 inspo ok no copy tho 
 
-lowkey irl kabu/scara hm
+irl kabu/scara ok
 
 ![.](https://komarev.com/ghpvc/?username=scaramoucho&label=♱&color=lightgrey)
