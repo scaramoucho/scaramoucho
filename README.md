@@ -9,4 +9,4 @@ inspo ok no copy tho
 
 irl kabu/scara ok
 
-![.](https://komarev.com/ghpvc/?username=scaramoucho&label=♱&color=lightgrey)
+![.](https://komarev.com/ghpvc/?username=scaramoucho&label=♱&color=lightgrey) 
